@@ -8,3 +8,6 @@
 ![Screenshot (28)](https://github.com/navpreet26/mtm6302-capstone-navpreet26/assets/145068133/c168820e-a3db-4a4b-8eb9-ed50ae4dc892)
 ![Screenshot (29)](https://github.com/navpreet26/mtm6302-capstone-navpreet26/assets/145068133/ef8a23b4-1bf8-42c7-88a6-a87dead7f83a)
 
+From part-2
+
+![Screenshot (76)](https://github.com/navpreet26/mtm6302-capstone-navpreet26/assets/145068133/d5226e97-cac1-48df-aacb-53343b242700)
